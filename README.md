@@ -1,2 +1,2 @@
-# jnu onam 2025
-Comming soon
+# JNU Onam 2025
+Comming soon!
